@@ -1,1 +1,1 @@
-# infografia-digital-clase-3
+# infografia-digital-clase-2
